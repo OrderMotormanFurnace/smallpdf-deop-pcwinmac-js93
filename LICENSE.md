@@ -1,4 +1,4 @@
-# 
+# Secure Smallpdf Desktop tools for Mac OS | Exclusive Smallpdf Desktop tools for PC Windows. Featuring search functionality and pdf conversion — optimized for maximum performance on every platform.
 
 
 
